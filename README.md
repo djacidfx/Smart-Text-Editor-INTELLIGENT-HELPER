@@ -1,0 +1,2 @@
+# Smart Text Editor INTELLIGENT HELPER
+ Smart Text Editor INTELLIGENT HELPER
